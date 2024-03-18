@@ -1,0 +1,2 @@
+# Izzatbek
+Bu yerga nima
